@@ -1,0 +1,1 @@
+# inqnuruyn-ashxatanq-Qt
